@@ -8,3 +8,7 @@
 
 Shoutout:
 -Big shoutout to my old manager Lori at DBG. She has been very supportive of my decision to go to school full time instead of continue to work for her. While their custodial team is very short staffed now, it was great to see that Lori and the whole team were happy for me, rather than resentful to me for leaving.
+
+I am pretty darn hungry.
+
+Wish i had some tasty food.
